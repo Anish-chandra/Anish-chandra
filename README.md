@@ -2,7 +2,7 @@
 - 👀 I’m interested in creating new idea
 - 🌱 I’m currently learning B-tech(cse)
 - 💞️ I’m looking to collaborate on c++ project idea
-- 📫 How to reach me Gmail:- Kaifanish786@gmail.com
+- 📫 How to reach me Gmail:- Anishchandra933@gmail.com
 - 😄 Pronouns: everything 
 - ⚡ Fun fact: learing and creative a new project
 
